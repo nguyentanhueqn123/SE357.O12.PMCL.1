@@ -3,6 +3,6 @@
 ## Thành viên trong nhóm
 
 - Nguyễn Tấn Huệ - 20521359
-- Nguyễn Nhật Khang -21522193
+- Nguyễn Nhật Khang - 21522193
 
 ---
